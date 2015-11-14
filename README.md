@@ -1,4 +1,4 @@
 Learn R
 
 
-This belongs to bui ha my
+This belongs to Ngo The Trung
